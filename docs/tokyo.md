@@ -41,7 +41,7 @@ small, lively restaurants.
 
 - Sensouji and Kaminarimon - famous buddhist temple and iconic red gate (near Skytree)
 
-  The area around the temple is also a nice place to walk around. Monjyayaki (runny, savory pancakes) is a local specialty.
+  The area around the temple is also a nice place to walk around. Monjayaki (runny, savory pancakes) is a local specialty.
 
   <https://www.asakusastation.com/kaminarimon-asakusa-thunder-gate/>
 
@@ -58,13 +58,13 @@ small, lively restaurants.
 
 There are numerous zoos, aquariums, art museums, and culture museums around Tokyo
 
-- Edo-Tokyo Museum - information about life in Tokyo over the ages through miniture models and full-scale reproductions; a good introduction to Japanese culture.
+- Edo-Tokyo Museum - information about life in Tokyo over the ages through miniature models and full-scale reproductions; a good introduction to Japanese culture.
 
   Nearby restaurants specialize in "chanko-nabe", a kind of hearty stew
 
   <https://www.edo-tokyo-museum.or.jp/en/>
 	  
-- Tokyo National Museum - located in Ueno park, this museum contains an excellent selection of artefacts from throughout Japanese history
+- Tokyo National Museum - located in Ueno park, this museum contains an excellent selection of artifacts from throughout Japanese history
 
   <https://www.tnm.jp/?lang=en>
 
@@ -111,11 +111,11 @@ There are numerous zoos, aquariums, art museums, and culture museums around Toky
 
   <https://www.japan-guide.com/e/e3117.html>
 
-- Kawaguchiko - Resort area on the north side of Mt. Fuji with traditional Japanese inns that surround a lake with views of Mt. Fuji.  There is also hiking and a theme park famous for its rollar coasters.
+- Kawaguchiko - Resort area on the north side of Mt. Fuji with traditional Japanese inns that surround a lake with views of Mt. Fuji.  There is also hiking and a theme park famous for its roller coasters.
 
   <https://www.japan-guide.com/e/e6906.html>
 
-- Hakone - Resort area on the south side of Mt Fuji with traditional Japanese inns. Be sure to take the cable car over the sulfer pits and visit the open area museum.
+- Hakone - Resort area on the south side of Mt Fuji with traditional Japanese inns. Be sure to take the cable car over the sulfur pits and visit the open area museum.
 
   <https://www.japan-guide.com/e/e5200.html>
 

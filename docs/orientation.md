@@ -60,13 +60,13 @@ coincidently I arrived on the day before their annual "Belly Button Festival".
 
 ## Internet
 
-Things are changing but "free wifi" in Japan often require you to register with a local
-phone number before using, even in cafes.  Really free wifi is accessible in hotels,
+Things are changing but "free wifi" in Japan often requires you to register with a local
+phone number before using, even in cafes.  Free wifi, without such registration, is accessible in hotels,
 tourist information centers, and major transportation hubs.
 
 You might find a pocket wifi helpful.  It acts like a mobile
 router that you can use to connect to the internet from your phone or computer from anywhere.
-Prices should be reasonable with customizable plays (1 week, 2 weeks, etc). You can get
+Prices should be reasonable with customizable plans (1 week, 2 weeks, etc). You can get
 these in any international airport and drop them off on your way out of the country.
 
 ## Money
